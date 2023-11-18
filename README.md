@@ -1,4 +1,4 @@
-### Hi there 👋 my name is Samia
+### Hi there 👋 my name is Jennifer Wang!!! <3
 
 <!--
 **JennWan/JennWan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
